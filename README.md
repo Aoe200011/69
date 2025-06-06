@@ -1,6 +1,6 @@
 # 请记住我们的信息More actions
 
-[永久域名 https://69sexy.site/)
+[永久域名 https://69sexy.site/](https://69sexy.site/)
 # 69传媒视频 最新地址发布 
 ## 导 航 永 久 域 名 : https://69sexy.site/
 ## ⭐️ 👉 备用导航 ：https://69sexy.site/
